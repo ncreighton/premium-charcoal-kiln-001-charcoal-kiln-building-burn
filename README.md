@@ -1,0 +1,2 @@
+# premium-charcoal-kiln-001-charcoal-kiln-building-burn
+Are you tired of trial and error in charcoal kiln building, wasting time and resources on inconsistent burn control? The Charcoal Kiln Building &amp; Burn Control Craft Hub is here to revolutionize your craft.  This Notion template is specifically designed to streamline your kiln building and burn control process, providing a comprehensive framework fo
